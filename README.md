@@ -1,9 +1,3 @@
-<div align="center">the<br><b>fartlast</b><br>trials<br>
-<img src ="https://static.wikia.nocookie.net/outlast/images/9/96/OL_Trials_-_Valentine%27s_Day_Card_2023.png/revision/latest/scale-to-width-down/1000?cb=20230219080627" height="350"> 
-</div><br>
-<div align="center">
-<b>liam</b><br>
-17 <i>(05-26-06)</i> ♊︎<br>
-  <a href="https://www.last.fm/user/cogyxx">last.fm</a> & <a href="https://rentry.co/cogy">links</a>
-</div>
-<h6>readme is still a wip</h6>
+<div align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1129862251612999790/1227128997989847040/ezgif.com-crop.jpg?ex=662747f0&is=6614d2f0&hm=bcaaa16f5df2f6196c13198b6e24edd3db8c688b19786fef62a525e58d7be329&" align="right"><div align="center">haiiii im <span style="color:#2edb25;">cogy</span> <img height="15px" src="https://i.postimg.cc/tJkFR4Kb/IMG-9696.gif"> <br>if i followed u that means i prolly saw u on pt<br><img width="200" src="https://64.media.tumblr.com/cbaddec6bf8f67a93f640b4fa2b9f67d/ab2ea55a1e45b56e-85/s400x600/aa2295e667d795eb64c9a6e561359c079f129737.gifv"><br><a href="https://rentry.co/cogy">rentry</a> - <a href="https://en.pronouns.page/@cogy">en.pronouns</a></div></div>
+<h6 align="center"><i>i mainly lurk on pt so sorry if ion interact</i></h6>
+<img src="https://lh3.googleusercontent.com/proxy/nvo_rzoP-mmS1wDxHBWh8y-vHeQL8jBG6yW6g-Ca8HXV4C1MWmfYpHsIt9UTxTZJ_Cue_IxRIh4qFMk">
