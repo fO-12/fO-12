@@ -6,7 +6,6 @@
 <h6>muse dash luver ദ്ദി ( ᵔ ᗜ ᵔ )</h6>
 COGY / LIAM<br> 
 IT ៰ THEY ៰ HE <br>
-![](https://komarev.com/ghpvc/?username=fo-12&color=blueviolet&style=plastic)
 <img src="https://user-assets.sxlcdn.com/images/64283/Fn8lJEmbdqNTjBRA-ytd2HP2K4fL.gif?imageMogr2/strip/auto-orient/thumbnail/1200x9000%3E/quality/90!/format/gif" align="left">
 <div align="left">
  <a href="https://rentry.co/cogy">rentry</a><br>
