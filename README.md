@@ -8,7 +8,7 @@
  <a href="https://rentry.co/cogy">rentry</a><br>
  <a href="https://pronouns.cc/@cogy">prns.cc</a><br>
 <img src="https://64.media.tumblr.com/dbf8415f3422d1e9a15c26ff14289fe9/948b31eb082a3c1a-ca/s2048x3072/4fb5d0658cc9b0d1f2813920e155c2bffc3d7727.pnj" height="100"></div>
-<h6>current intrests: outlast, guts & blackpowder, & zenless zone zero</h6><br>
+<h6>current intrests: outlast, guts & blackpowder, & zenless zone zero</h6><br><br><br>
 dividers by: <a href="https://www.tumblr.com/phaea">phaea</a><br>
 flags by: <a href="https://www.tumblr.com/dizzy-lights">dizzy-lights</a><br>
 art by: <a href="https://www.tumblr.com/feyrel">feyrel</a>
