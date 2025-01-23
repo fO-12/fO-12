@@ -1,6 +1,6 @@
 <div align="center">
   <div>
-liam \ cogy <img src="https://64.media.tumblr.com/81f029f7fe60b9ef987f6159c87ab416/e95425e74245493d-3b/s75x75_c1/4ef3ad83e353d1810de5a261fcfbc0f63a731d7e.gifv" height="20px"><br>
+liam \ cogy<br>
 18 <img src="https://64.media.tumblr.com/de359465faf0a959c3f3995a5e32b839/c92552cb3469f532-16/s75x75_c1/262268ef628fda007c1bd7284dfb9c3f02541f71.gifv" height="20px"> ♂<br>
    <img src="https://64.media.tumblr.com/e981e8a5daec4ae9da5e14a5c1dc7672/45146dec3ad659df-01/s250x400/e044faa10ffa2701da0c2f6f1cb853b4d3ee262e.gifv"><br>
   <i>dni proship freaks</i><br>
