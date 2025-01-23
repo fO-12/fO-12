@@ -1,14 +1,12 @@
-
-<img src="https://64.media.tumblr.com/39e576c583beef3e57933a94a202c345/17c7bb1a0486b48d-0e/s2048x3072/808b564a8bfe8128c383a70e8daa63bfa91e50ce.pnj" height="570px" width="403px" align="left">
 <div align="center">
- <img src="https://64.media.tumblr.com/a8182c0b77319cd0221287d785e9885e/948b31eb082a3c1a-a6/s2048x3072/29112b1bd217ca6ddf77c582519a552464f800b8.pnj" height="100px"><br>
- cogy ﹒ 18 ﹒ <img src="https://64.media.tumblr.com/285cd797609c865196ece04ced1ae17d/554e37fffe3e1e13-b4/s75x75_c1/b84fcae69b63bd6bea1b11ab93872fa43a93d504.gifv"><img src="https://64.media.tumblr.com/9aed40b02420f17eec899bfb38fc108a/5ec3909bb84752a1-49/s75x75_c1/a02dccb3fa1c60b01e29cb273b9515dcc2fa53d9.gifv"><img src="https://64.media.tumblr.com/b8edd53e299ed10f6411be371038c9ae/554e37fffe3e1e13-02/s75x75_c1/de25ca5fd2b3f3ad0b7e819551b760ab3515de06.gifv"><br>
- <img src="https://media.discordapp.net/attachments/828126968708726787/1293952434309173352/dddddddddddddddddddddddd.png?ex=670a901c&is=67093e9c&hm=71b371918db318335e4288d5e563b2b97c9eafbfd1aa5ddf120f70d201a1c13c&=&format=webp&quality=lossless" height="90px">
- <h6>please read RENTRY before interacting. </h6>
- <a href="https://rentry.co/cogy">rentry</a><br>
- <a href="https://pronouns.cc/@cogy">prns.cc</a><br>
-<img src="https://64.media.tumblr.com/dbf8415f3422d1e9a15c26ff14289fe9/948b31eb082a3c1a-ca/s2048x3072/4fb5d0658cc9b0d1f2813920e155c2bffc3d7727.pnj" height="100"></div>
-<h6>current intrests: outlast, guts & blackpowder, & zenless zone zero</h6><br><br><br>
-dividers by: <a href="https://www.tumblr.com/phaea">phaea</a><br>
-flags by: <a href="https://www.tumblr.com/dizzy-lights">dizzy-lights</a><br>
-art by: <a href="https://www.tumblr.com/feyrel">feyrel</a>
+  <div>
+liam \ cogy <img src="https://64.media.tumblr.com/81f029f7fe60b9ef987f6159c87ab416/e95425e74245493d-3b/s75x75_c1/4ef3ad83e353d1810de5a261fcfbc0f63a731d7e.gifv" height="20px"><br>
+18 <img src="https://64.media.tumblr.com/de359465faf0a959c3f3995a5e32b839/c92552cb3469f532-16/s75x75_c1/262268ef628fda007c1bd7284dfb9c3f02541f71.gifv" height="20px"> ♂<br>
+   <img src="https://64.media.tumblr.com/e981e8a5daec4ae9da5e14a5c1dc7672/45146dec3ad659df-01/s250x400/e044faa10ffa2701da0c2f6f1cb853b4d3ee262e.gifv"><br>
+  <i>dni proship freaks</i><br>
+   <h6> ion play ponytown much anymore but hmu if we r oomfs</h6>
+   <img src="https://i.pinimg.com/1200x/46/1d/82/461d8276ce16facd5ca1fef9f75030ef.jpg" height="300px" width="177px">
+  </div>
+<a href="https://www.last.fm/user/cogyxx">last.fm</a> - <a href="https://rentry.co/cogy">rentry</a><br>
+ <img src="https://64.media.tumblr.com/60d810b767ca2e04944397839bf3ddd3/aac1d81f34f6dc41-8c/s640x960/ad35825e73475cf3e37ea8273f648abf7de3f2ee.gifv">
+</div>
